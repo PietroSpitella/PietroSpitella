@@ -1,4 +1,4 @@
-### 👋 Hi, I’m @PietroSpitella
+### 👋 Hi, I’m Pietro Spitella
 
 <img src="https://media-exp1.licdn.com/dms/image/C4E16AQH0s2BmBg5Dhw/profile-displaybackgroundimage-shrink_350_1400/0/1636907477072?e=1643846400&v=beta&t=HjLjjVBfAzhxtN20wp1Zywy0crrdeQUUwt3gOjQe57g" />
 
